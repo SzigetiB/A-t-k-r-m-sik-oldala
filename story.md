@@ -7,3 +7,4 @@ Meglepetésemben nem tudtam mozogni, mintha valami erő próbált volna behúzni
 De aztán egy másik kezet is megéreztem, ami a tükör túloldaláról érkezett, és finoman megfogta az ujjaimat.
 A kéz erősebb volt, mint bármi, amit éreztem, és hirtelen olyan érzés fogott el, mintha én is a tükör túloldalán lennék.
 Hirtelen a másik oldalon találtam magam, egy teljesen idegen szobában, ahol a levegő hideg volt, és a fények fakón pislákoltak.
+A szoba egyik sarkában egy nő állt, és mikor észrevett, elmosolyodott, mintha csak rám várt volna.
