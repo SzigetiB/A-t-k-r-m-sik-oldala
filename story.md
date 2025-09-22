@@ -10,3 +10,4 @@ Hirtelen a másik oldalon találtam magam, egy teljesen idegen szobában, ahol a
 A szoba egyik sarkában egy nő állt, és mikor észrevett, elmosolyodott, mintha csak rám várt volna.
 A nő azt mondta: "Végre megérkeztél. Már régóta próbáltam elérni, hogy átlépj."
 Nem értettem, miről beszél, és amikor ránéztem, valami furcsa borzongás futott végig rajtam.
+"A tükör világában élek, és te voltál az, akit keresek" – folytatta, miközben a szoba falai körülöttünk kezdtek torzulni.
