@@ -5,3 +5,4 @@ Lassan, szinte hipnotizálva léptem közelebb, és a tükör felszínén egy ap
 Mikor az ujjaimat a tükörre érintettem, egy hirtelen mozdulattal elnyelte a kezem, mintha a tükör valami másik világot rejtene.
 Meglepetésemben nem tudtam mozogni, mintha valami erő próbált volna behúzni.
 De aztán egy másik kezet is megéreztem, ami a tükör túloldaláról érkezett, és finoman megfogta az ujjaimat.
+A kéz erősebb volt, mint bármi, amit éreztem, és hirtelen olyan érzés fogott el, mintha én is a tükör túloldalán lennék.
