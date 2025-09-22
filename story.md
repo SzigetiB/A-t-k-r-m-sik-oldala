@@ -4,3 +4,4 @@ A fények mintha máshonnan érkeztek volna, és valami megmagyarázhatatlan von
 Lassan, szinte hipnotizálva léptem közelebb, és a tükör felszínén egy apró, halvány rezdülést vettem észre.
 Mikor az ujjaimat a tükörre érintettem, egy hirtelen mozdulattal elnyelte a kezem, mintha a tükör valami másik világot rejtene.
 Meglepetésemben nem tudtam mozogni, mintha valami erő próbált volna behúzni.
+De aztán egy másik kezet is megéreztem, ami a tükör túloldaláról érkezett, és finoman megfogta az ujjaimat.
