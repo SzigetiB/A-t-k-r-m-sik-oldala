@@ -13,3 +13,4 @@ Nem értettem, miről beszél, és amikor ránéztem, valami furcsa borzongás f
 "A tükör világában élek, és te voltál az, akit keresek" – folytatta, miközben a szoba falai körülöttünk kezdtek torzulni.
 "De miért én?" kérdeztem, próbálva elnyomni a félelmet, ami most már teljesen eluralkodott rajtam.
 A nő elmosolyodott, majd közelebb lépett, és a kezemet megérintve azt mondta: "Mert te is benne vagy, még ha nem is tudod."
+Ahogy megérintette a kezem, éreztem, hogy egy szoros kapcsolat van közöttünk, mintha a mi világaink valahol összefonódtak volna.
