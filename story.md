@@ -16,3 +16,4 @@ A nő elmosolyodott, majd közelebb lépett, és a kezemet megérintve azt mondt
 Ahogy megérintette a kezem, éreztem, hogy egy szoros kapcsolat van közöttünk, mintha a mi világaink valahol összefonódtak volna.
 Az ajtó előtt egy hatalmas tükör jelent meg, és én láttam benne magamat, de valahogy... másnak tűntem.
 "Ez a tükör másik oldala. Most már te is itt élsz" – mondta, miközben a tükörben a régi énem egy idegenként nézett vissza.
+El akartam futni, de a tükör egyre inkább elnyelt, és valami belső érzés azt súgta, hogy nincs menekvés.
