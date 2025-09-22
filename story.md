@@ -1,0 +1,1 @@
+Már régóta éreztem, hogy valami nincs rendben a tükörrel, de sosem foglalkoztam vele igazán.
