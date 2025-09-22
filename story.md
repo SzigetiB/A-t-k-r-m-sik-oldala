@@ -1,0 +1,1 @@
+Egy nap, mikor reggel a szokásos módon belenéztem, valami furcsát vettem észre: a tükörképen a napfény nem esett úgy, ahogy a valóságban.
