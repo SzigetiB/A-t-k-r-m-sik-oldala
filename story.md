@@ -3,3 +3,4 @@ Egy nap, mikor reggel a szokásos módon belenéztem, valami furcsát vettem és
 A fények mintha máshonnan érkeztek volna, és valami megmagyarázhatatlan vonzott a tükör felé.
 Lassan, szinte hipnotizálva léptem közelebb, és a tükör felszínén egy apró, halvány rezdülést vettem észre.
 Mikor az ujjaimat a tükörre érintettem, egy hirtelen mozdulattal elnyelte a kezem, mintha a tükör valami másik világot rejtene.
+Meglepetésemben nem tudtam mozogni, mintha valami erő próbált volna behúzni.
