@@ -1,0 +1,1 @@
+# A-t-k-r-m-sik-oldala
