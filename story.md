@@ -12,3 +12,4 @@ A nő azt mondta: "Végre megérkeztél. Már régóta próbáltam elérni, hogy
 Nem értettem, miről beszél, és amikor ránéztem, valami furcsa borzongás futott végig rajtam.
 "A tükör világában élek, és te voltál az, akit keresek" – folytatta, miközben a szoba falai körülöttünk kezdtek torzulni.
 "De miért én?" kérdeztem, próbálva elnyomni a félelmet, ami most már teljesen eluralkodott rajtam.
+A nő elmosolyodott, majd közelebb lépett, és a kezemet megérintve azt mondta: "Mert te is benne vagy, még ha nem is tudod."
