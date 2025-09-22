@@ -15,3 +15,4 @@ Nem értettem, miről beszél, és amikor ránéztem, valami furcsa borzongás f
 A nő elmosolyodott, majd közelebb lépett, és a kezemet megérintve azt mondta: "Mert te is benne vagy, még ha nem is tudod."
 Ahogy megérintette a kezem, éreztem, hogy egy szoros kapcsolat van közöttünk, mintha a mi világaink valahol összefonódtak volna.
 Az ajtó előtt egy hatalmas tükör jelent meg, és én láttam benne magamat, de valahogy... másnak tűntem.
+"Ez a tükör másik oldala. Most már te is itt élsz" – mondta, miközben a tükörben a régi énem egy idegenként nézett vissza.
