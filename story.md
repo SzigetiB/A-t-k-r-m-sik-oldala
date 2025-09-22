@@ -9,3 +9,4 @@ A kéz erősebb volt, mint bármi, amit éreztem, és hirtelen olyan érzés fog
 Hirtelen a másik oldalon találtam magam, egy teljesen idegen szobában, ahol a levegő hideg volt, és a fények fakón pislákoltak.
 A szoba egyik sarkában egy nő állt, és mikor észrevett, elmosolyodott, mintha csak rám várt volna.
 A nő azt mondta: "Végre megérkeztél. Már régóta próbáltam elérni, hogy átlépj."
+Nem értettem, miről beszél, és amikor ránéztem, valami furcsa borzongás futott végig rajtam.
